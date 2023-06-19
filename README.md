@@ -5,4 +5,4 @@ ChatGPT在线购买地址：
 https://chat.xingtupai.com/
 
 ChatGPT中文镜像在线免费体验：
-https://chatgpt.xingtupai.com/
+https://ai.chatgptzh.top/
